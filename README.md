@@ -1,16 +1,14 @@
-## Hi there 👋
+<p align ="center">•┈┈┈••✦ ♡ ✦••┈┈┈•
+</p>
 
-<!--
-**iamsherl0cked/iamsherl0cked** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![852344d1eba6e329b0e382d8da2eac09](https://github.com/user-attachments/assets/297fbcaf-3ad2-4248-94e8-774e93ea4555)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align ="center">"𝓦𝓱𝓸 𝓬𝓪𝓻𝓮𝓼 𝓪𝓫𝓸𝓾𝓽 𝓭𝓮𝓬𝓮𝓷𝓽 ? 𝓣𝓱𝓮 𝓰𝓪𝓶𝓮, 𝓜𝓻𝓼.𝓗𝓾𝓭𝓼𝓸𝓷, 𝓲𝓼 𝓸𝓷!" - 𝓢𝓗
+</p>
+<p align ="center">☆ ︶︶︶  ౿ ָ🔎 𞥊   ︶︶︶ ☆
+Ꮺ  mari ೀ filo ✧
+જ⁀➴ c+h ☑  ♡  ೀ  semi-verbal/non-verbal  ೀ  rpdni/sys  ೀ int with caution  ೀ  .ᐟ ˚⊹ ᰔ
+☆ ︶︶︶  ౿ ָ 🔎 𞥊   ︶︶︶ ☆  
+</p>
