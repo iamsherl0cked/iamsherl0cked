@@ -8,7 +8,7 @@
 <p align ="center">"𝓦𝓱𝓸 𝓬𝓪𝓻𝓮𝓼 𝓪𝓫𝓸𝓾𝓽 𝓭𝓮𝓬𝓮𝓷𝓽 ? 𝓣𝓱𝓮 𝓰𝓪𝓶𝓮, 𝓜𝓻𝓼.𝓗𝓾𝓭𝓼𝓸𝓷, 𝓲𝓼 𝓸𝓷!" - 𝓢𝓗
 </p>
 <p align ="center">☆ ︶︶︶  ౿ ָ🔎 𞥊   ︶︶︶ ☆
-Ꮺ  mari ೀ filo ✧
+Ꮺ  mari ೀ filo ✧ infj
 જ⁀➴ c+h ☑  ♡  ೀ  semi-verbal/non-verbal  ೀ  rpdni/sys  ೀ int with caution  ೀ  .ᐟ ˚⊹ ᰔ
 ☆ ︶︶︶  ౿ ָ 🔎 𞥊   ︶︶︶ ☆  
 </p>
